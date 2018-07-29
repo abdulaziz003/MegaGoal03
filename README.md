@@ -77,5 +77,13 @@ To make the learning of English fun, motivating, and success-oriented by way of 
     - [ ] [Subjunctive](https://en.wikipedia.org/wiki/Subjunctive_mood) l'd like you + [infinitive](https://en.wikipedia.org/wiki/Infinitive) / I Want you + infinitive Tag questions.
     - [ ] Listen for specific information about a survey on job satisfaction.
     - [ ] Syllable stress on words ending with-tion,-cian and -sion.
-    
-#### add your idea
+    - [ ] Write about an unusual job that you might .
+    ***
+* ### WEEK06
+ * #### Going Green
+    - [ ] Evaluate how "green" you are Disuss ways to be environmentally responsible , Make suggestions express preferences with l'd rather.
+    - [ ] Gerunds after verbs, lnfinities after verbs simple present tense versus present progressive conditional sentences with present and future forms.
+    - [ ] Listen for specific information about glass recycling .
+    - [ ] Write a letter to a nawspaper Design and make posters promoting "Going Green" in your school.
+     
+     #### add your idae

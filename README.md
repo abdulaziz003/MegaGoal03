@@ -1,4 +1,4 @@
-# MegaGoal 3, summer class 2018
+l# MegaGoal 3, summer class 2018
 > #### Done By Abdulaziz Muhammed Al Bidani
 
 #### [slack channel](https://schoolaqiq.slack.com/messages/DBE86C015/)
@@ -77,5 +77,22 @@ To make the learning of English fun, motivating, and success-oriented by way of 
     - [ ] [Subjunctive](https://en.wikipedia.org/wiki/Subjunctive_mood) l'd like you + [infinitive](https://en.wikipedia.org/wiki/Infinitive) / I Want you + infinitive Tag questions.
     - [ ] Listen for specific information about a survey on job satisfaction.
     - [ ] Syllable stress on words ending with-tion,-cian and -sion.
+    - [ ] Write about an unusual job that might like to have research .
+    ***
+* ### WEEK06
+ * #### Going Green
+    - [ ] Evaluate how "green" you are Discuss ways to be environmentally responsible, Make suggestions , Express preferences with l'd rather.
+    - [ ] Gerunds after verbs lnfinives after verbs, Simple present tense versus present progressive ,Conditional sentences with present and future forms.
+    - [ ] Listen for specific information about glass recycling.
+    - [ ] Write a letter to a newspaper Design and make posters pormoting "Going Green" in your school.
+    ***
+  * #### ----------------------------------- EXPANSION Units 4-6 -------------------------------
+    - [ ] Language Review.
+    - [ ] The psychology of color.
+    - [ ] Idioms with colors.
+    - [ ] Common errors with prepositions.
+    - [ ] Write about cultural meanings of color, symbols, customs, or gestures.
     
-#### add your idea
+    ******************************************************************************************************************************
+    
+    #### add your idea
